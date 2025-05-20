@@ -55,7 +55,7 @@ I'm currently interning at **ISC-CNRS, France**, as a **Charpak Scholar**, decod
 ## 📸 Fun Facts
 
 🎾 State-level tennis player  
-📷 Amateur photographer & visual storyteller  
+📷 Amateur photographer
 🌍 Love working across disciplines and continents!
 
 ---
