@@ -2,7 +2,7 @@
 
 🎓 M.S. Research Scholar in Computer Science & Engineering  
 🧠 Cognitive Science Lab, IIIT Hyderabad  
-📍 Currently in Lyon, France | 🇮🇳 Originally from India  
+🇮🇳 Originally from India  
 ✉️ tanishapal2001@gmail.com | 📫 [LinkedIn](https://linkedin.com/in/tanisha-pal-0770921bb)
 
 ---
